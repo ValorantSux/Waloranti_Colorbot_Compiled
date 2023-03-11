@@ -1,1 +1,1 @@
-An Compiled Version Of Valorant Chear @ColorBot
+An Compiled Version Of Valorant Cheat @ColorBot
